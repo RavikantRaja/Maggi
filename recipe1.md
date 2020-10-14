@@ -1,0 +1,1 @@
+Open the packet of *"maggi"* and break the hard thin, worm like thing into a small piece and eat it and eat the powder present in the small packet inside the big packet(usually it is silver in color). Then drink water. It doesn't matter if the water is boiled or not because you have hydrochloric acid in the stomach of yours, it will boil both maggi and water.
